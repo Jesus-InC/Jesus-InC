@@ -4,6 +4,8 @@ Buenos días, tardes o noches, es un gusto saludarte. Soy Jesús Fernando Ibarra
 
 Aquí dejo uno que otro dato sobre mí por si te interesa:
 - Tengo 18 años. 👴
+- Tengo una hermana mayor y un hermano menor, sí, soy el hijo del medio (el invisible).
+- Tengo una perrita llamada Heidi a la cual amo demasiado. <3
 - Me gradué del colegio San Bernardo de Tarija. Mi mayor logro dentro de mi vida escolar fue conseguir mantenerme como un estudiante aplicado, buscando siempre mejorar. 
 - Me gusta mucho la gramática, el debate, matemática, física y química, respecto a esta última pude obtener una medalla de oro a nivel departamental en las Olimpiadas Científicas.
 - Me encanta ver a creadores de contenido de plataformas de streaming como Twitch y de vídeos como YouTube, también jugar videojuegos (principalmente League of Legends), escuchar todo tipo de música, ver películas y series (sobre todo las de superhéroes y biopics), cantar y bailar (aunque no soy muy bueno en estas últimas dos).
