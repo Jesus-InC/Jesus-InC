@@ -1,5 +1,5 @@
 ![Rubiuh](https://user-images.githubusercontent.com/125235437/218383087-c4f21460-3cef-4750-943a-63d11fd742b6.gif)
-### ¡Hey! ¿todo bien?, ¿todo correcto?, y yo que me alegro :)
+### ¡Hey!, ¿todo bien?, ¿todo correcto?, y yo que me alegro :)
 Buenos días, tardes o noches, es un gusto saludarte. Soy Jesús Fernando Ibarra Condori, pero la mayoría de las personas me dicen "Yisus" o simplemente Jesús. Soy alguien normal... en ocasiones, y otras veces me gusta "innovar". Considero que ser auténtico es lo mejor que podemos hacer, al fin y al cabo nada ni nadie nos promete que habrá un mañana. Vivamos siendo nosotros mismos, disfrutar los momentos y a las personas, buscar aprender más, sacar lecciones para bien en los errores y momentos malos y ser mejores cada día. 
 
 ![pep2](https://user-images.githubusercontent.com/125235437/218580062-0cafe6ff-ccbd-4df2-b84f-52091582f004.png)
